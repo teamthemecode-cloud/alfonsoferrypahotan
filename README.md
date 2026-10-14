@@ -1,8 +1,17 @@
 # Alfonso Ferry Pahotan Napitupulu, S.H., M.H.
 
-**Praktisi hukum | Ketua Umum Gerakan Milenial Pencinta Tanah Air (GEMPITA)**
+**Ketua Umum Gerakan Milenial Pencinta Tanah Air (GEMPITA)**  
+**Bidang perhatian:** Kepemudaan · Kepemimpinan organisasi · Kebangsaan · Hukum
 
-Alfonso Ferry Pahotan Napitupulu, S.H., M.H. adalah praktisi hukum Indonesia yang dikenal melalui aktivitas organisasi kemasyarakatan dan kepemudaan. Ia dikenal pula dengan nama **Alfonso Ferry Pahotan** dan diberitakan sebagai **Ketua Umum Gerakan Milenial Pencinta Tanah Air (GEMPITA)**, sebuah organisasi yang berfokus pada semangat kebangsaan, persatuan, dan keterlibatan generasi muda.
+🌐 **Website resmi:** [alfonsoferrypahotan.com](https://alfonsoferrypahotan.com/)
+
+---
+
+## Tentang Alfonso Ferry Pahotan
+
+**Alfonso Ferry Pahotan Napitupulu, S.H., M.H.**, juga dikenal dalam pemberitaan sebagai **Alfonso Ferry Pahotan**, adalah figur organisasi kemasyarakatan di Indonesia yang diberitakan menjabat sebagai **Ketua Umum Gerakan Milenial Pencinta Tanah Air (GEMPITA)**.
+
+Dalam kegiatan publik yang terdokumentasi, ia terlibat dalam agenda organisasi terkait pengembangan generasi muda, dialog kebangsaan, dan penguatan partisipasi masyarakat. Profil ini disusun sebagai ringkasan informasi publik yang dapat ditelusuri melalui sumber berita dan kanal organisasi.
 
 ## Profil Singkat
 
@@ -10,43 +19,59 @@ Alfonso Ferry Pahotan Napitupulu, S.H., M.H. adalah praktisi hukum Indonesia yan
 | --- | --- |
 | Nama lengkap | Alfonso Ferry Pahotan Napitupulu, S.H., M.H. |
 | Nama yang digunakan dalam pemberitaan | Alfonso Ferry Pahotan |
-| Bidang kegiatan | Hukum, organisasi kemasyarakatan, kepemudaan, dan dialog kebangsaan |
-| Jabatan yang dipublikasikan | Ketua Umum GEMPITA |
 | Organisasi | Gerakan Milenial Pencinta Tanah Air (GEMPITA) |
+| Jabatan yang diberitakan | Ketua Umum DPP GEMPITA |
+| Fokus kegiatan publik | Kepemudaan, kepemimpinan organisasi, dan dialog kebangsaan |
+| Website resmi | [https://alfonsoferrypahotan.com/](https://alfonsoferrypahotan.com/) |
 | Negara | Indonesia |
 
-## Kiprah dan Kegiatan Publik
+## Kiprah dan Kegiatan
 
-### Kepemimpinan organisasi
+### 2024 — Audiensi DPP GEMPITA
 
-Alfonso Ferry Pahotan tercantum sebagai Ketua Umum GEMPITA pada halaman struktur organisasi GEMPITA. Dalam pemberitaan publik, organisasi ini menjalankan kegiatan terkait partisipasi generasi muda serta dialog dan persatuan kebangsaan.
+Pada **26 Maret 2024**, Liputan6 memberitakan audiensi pengurus DPP GEMPITA dengan Rosan Roeslani di Jakarta. Dalam laporan tersebut, pengurus yang hadir disebut dipimpin oleh **Alfonso Ferry Pahotan** sebagai Ketua Umum GEMPITA.
 
-### Audiensi GEMPITA pada 2024
+Pemberitaan itu juga memuat paparan rencana program GEMPITA, termasuk pendidikan dan pelatihan kewirausahaan generasi muda, apresiasi karya anak bangsa, serta pengembangan basis data kepemudaan berbasis kewirausahaan.
 
-Pada **26 Maret 2024**, Liputan6 melaporkan bahwa pengurus DPP GEMPITA yang dipimpin Alfonso Ferry Pahotan mengikuti audiensi dengan Rosan Roeslani di Jakarta. Peristiwa tersebut merupakan bagian dari aktivitas organisasi GEMPITA yang diberitakan kepada publik.
+**Sumber:** [Liputan6 — Jadi Ketua Paguyuban Solidaritas Nasional, Rosan Apresiasi Gempita (26 Maret 2024)](https://www.liputan6.com/news/read/5560095/jadi-ketua-paguyuban-solidaritas-nasional-rosan-apresiasi-gempita)
 
-### Silaturahmi kebangsaan pada 2026
+### 2026 — Silaturahmi Kebangsaan
 
-Pada **8 Februari 2026**, DPP GEMPITA mengadakan silaturahmi kebangsaan bersama KH Said Aqil Siradj. Pemberitaan pada 9 Februari 2026 menyebut Alfonso Ferry Pahotan hadir sebagai Ketua Umum DPP GEMPITA serta menyampaikan pentingnya dialog, persatuan, dan komitmen kebangsaan.
+Pada **8 Februari 2026**, DPP GEMPITA melaksanakan silaturahmi kebangsaan bersama **KH Said Aqil Siradj** di Jakarta. Pemberitaan Pilar Merdeka pada **9 Februari 2026** menyebut Alfonso Ferry Pahotan sebagai Ketua Umum DPP GEMPITA dalam kegiatan yang membahas persatuan dan komitmen kebangsaan.
+
+**Sumber:** [Pilar Merdeka — Silaturahmi Kebangsaan DPP Gempita Bersama KH Said Aqil Siradj (9 Februari 2026)](https://pilarmerdeka.com/silaturahmi-kebangsaan-dpp-gempita-bersama-kh-sai/)
 
 ## Bidang Perhatian
 
-Berdasarkan peran organisasi dan kegiatan yang diberitakan, ranah aktivitas publik Alfonso Ferry Pahotan meliputi:
+Berdasarkan kegiatan yang diberitakan secara publik, beberapa tema yang berkaitan dengan aktivitas organisasi Alfonso Ferry Pahotan adalah:
 
-- Praktik dan isu hukum.
-- Kepemimpinan organisasi kemasyarakatan.
-- Kegiatan kepemudaan dan partisipasi warga.
-- Dialog kebangsaan dan penguatan persatuan.
+- **Kepemudaan:** partisipasi dan pengembangan potensi generasi muda.
+- **Kewirausahaan:** pendidikan, pelatihan, dan apresiasi terhadap karya generasi muda sebagaimana dipaparkan dalam agenda GEMPITA.
+- **Kebangsaan:** dialog, persatuan, dan keterlibatan organisasi kemasyarakatan.
+- **Hukum:** bidang latar pendidikan yang tercermin dalam gelar akademik S.H. dan M.H.; rincian pendidikan dan status profesi memerlukan verifikasi tersendiri.
 
-## Referensi Publik
+## Website dan Referensi
 
-1. **GEMPITA — Struktur organisasi:** [gempitamilenial.org/struktur/](https://gempitamilenial.org/struktur/)
-2. **Liputan6, 26 Maret 2024 — Audiensi DPP GEMPITA bersama Rosan Roeslani:** [Baca pemberitaan](https://www.liputan6.com/news/read/5560095/jadi-ketua-paguyuban-solidaritas-nasional-rosan-apresiasi-gempita)
-3. **Pilar Merdeka, 9 Februari 2026 — Silaturahmi Kebangsaan DPP GEMPITA bersama KH Said Aqil Siradj:** [Baca pemberitaan](https://pilarmerdeka.com/silaturahmi-kebangsaan-dpp-gempita-bersama-kh-sai/)
-4. **FTNews, 23 April 2024 — Seruan Ketua Umum GEMPITA:** [Baca pemberitaan](https://ftnews.co.id/seruan-ketum-gempita-pasca-pengumuman-mk)
+### Website Resmi
 
-## Catatan Publikasi
+**[alfonsoferrypahotan.com](https://alfonsoferrypahotan.com/)** — kanal website resmi Alfonso Ferry Pahotan. **Per 14 Oktober 2026, situs tersebut masih menampilkan halaman “Segera Hadir”.**
 
-Profil ini merupakan rangkuman informasi yang tersedia dalam sumber organisasi dan pemberitaan publik. Informasi jabatan serta kegiatan dapat berubah seiring waktu. Riwayat pendidikan, lisensi profesi aktif, data kontak pribadi, dan perincian biografi lainnya tidak dicantumkan tanpa verifikasi tambahan.
+### Pemberitaan dan Organisasi
 
-**Terakhir diperbarui:** 14 Oktober 2026.
+1. [Liputan6 — Audiensi DPP GEMPITA dengan Rosan Roeslani (26 Maret 2024)](https://www.liputan6.com/news/read/5560095/jadi-ketua-paguyuban-solidaritas-nasional-rosan-apresiasi-gempita)
+2. [Pilar Merdeka — Silaturahmi Kebangsaan DPP GEMPITA (9 Februari 2026)](https://pilarmerdeka.com/silaturahmi-kebangsaan-dpp-gempita-bersama-kh-sai/)
+3. [GEMPITA — Website Organisasi](https://gempitamilenial.org/)
+
+---
+
+## English Overview
+
+**Alfonso Ferry Pahotan Napitupulu, S.H., M.H.**, also publicly known as **Alfonso Ferry Pahotan**, has been identified in Indonesian news coverage as the **Chairman of Gerakan Milenial Pencinta Tanah Air (GEMPITA)**, an Indonesian youth and civic organization. Publicly reported activities include youth entrepreneurship initiatives and national dialogue events.
+
+**Official website:** [alfonsoferrypahotan.com](https://alfonsoferrypahotan.com/)
+
+---
+
+*Catatan: Dokumen ini merangkum informasi publik yang tercantum dalam sumber-sumber di atas. Gelar akademik, jabatan aktif, dan rincian riwayat personal sebaiknya dikonfirmasi langsung kepada pemilik profil sebelum digunakan sebagai biografi resmi yang final. Tidak ada klaim bahwa tautan atau profil ini telah diverifikasi oleh pihak ketiga.*
+
+**Terakhir diperbarui: 14 Oktober 2026.**
